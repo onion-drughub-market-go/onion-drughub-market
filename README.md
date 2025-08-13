@@ -31,4 +31,6 @@ If you aim to explore everything this darknet marketplace provides, prioritize y
 
 
 
-Update:  04.08.2025
+
+
+Update:  Wednesday 13 August 2025 Link is now active and responsive
