@@ -35,4 +35,6 @@ If you aim to explore everything this darknet marketplace provides, prioritize y
 
 
 
-Update:  19 August 2025
+
+
+Update:  23.08.2025
