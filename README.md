@@ -41,4 +41,6 @@ If you aim to explore everything this darknet marketplace provides, prioritize y
 
 
 
-Update:  14 September 2025 Fixed unreachable url
+
+
+Update:  18.09.2025
